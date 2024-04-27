@@ -1,0 +1,1 @@
+# Mini-Project-1-SLO_Andi-Zhagyta-Amalia-Azrika
